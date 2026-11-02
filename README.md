@@ -1,0 +1,1 @@
+# Amino-acid-s-parameter-CE-mapping
